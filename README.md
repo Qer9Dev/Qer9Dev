@@ -8,7 +8,7 @@
 
 💞️ I’m looking to collaborate on game development, Minecraft plugins, or any cool coding projects.
 
-📫 How to reach me: qer9dev@gmail.com | Discord: qer_9
+📫 How to reach me: qer9dev@gmail.com | Discord: javaqer
 
 😄 Pronouns: qer
 
